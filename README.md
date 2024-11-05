@@ -25,5 +25,5 @@
 - [Telegram](https://t.me/Masterskaya_Saitov/ "Мой Telegtram")
 - [Skype](https://t.me/Masterskaya_Saitov/](https://join.skype.com/invite/qJPuuncHB3bg/ "Мой Skype")
 - [VK](https://vk.com/sly_fox_bz/ "ВК")
-Буду рад сотрудничеству и новым вызовам! 🤝
+-  -Буду рад сотрудничеству и новым вызовам! 🤝
 
